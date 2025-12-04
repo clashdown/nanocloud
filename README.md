@@ -1,6 +1,6 @@
 # nanocloud 机场最新官网地址+优惠码
 
-nanocloud机场官网最新地址：[https://edu.uodoo.bid/](https://edu.uodoo.bid/auth/register?code=JMiOQDHf)
+nanocloud机场官网最新地址：[https://edu.yuque.men/](https://edu.yuque.men/auth/register?code=JMiOQDHf)
 
 ## nanocloud机场套餐特点
 
